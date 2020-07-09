@@ -7,6 +7,8 @@
 
 - 😄 When not coding I'm probably watching youtube or netflix n chill 
 
+- ⚡ I do make video on [youtube](https://www.youtube.com/channel/UCVrJ53Esf3PYZpzOoBP2oZQ?view_as=subscriber) when in a good mood 
+
 😄   Ciaoooo  😄
 
 <!--
