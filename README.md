@@ -5,7 +5,7 @@
 
 - 💬 Sometimes i blog funny stories at https://safermanarief14.blogspot.com/
 
-- 😄 When not coding I'm probably watching youtube or netflix n chill 
+- 😄 When not coding I'm probably watching youtube or watching netflix
 
 - ⚡ I do make video on [youtube](https://www.youtube.com/channel/UCVrJ53Esf3PYZpzOoBP2oZQ?view_as=subscriber) when in a good mood 
 
