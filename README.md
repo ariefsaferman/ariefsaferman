@@ -3,7 +3,7 @@
 
 
 # 😎 About me
-Hello, My name is Arief Saferman. I live in Indonesia at Jakarta, a crowded city with cool friendly people. I love tech and programming since 2012 because of watching magic from  youtube vidoes that create snake games for 10 minutes in his computer. At August 2021, I start intern as software engineer in gopay team on Gojek and still learning coding for my ninja way. Nice to meet you.  👋👋👋
+Hello, My name is Arief Saferman. I live in Indonesia at Jakarta, a crowded city with cool friendly people. I love tech and programming since 2012 because of watching magic from  youtube vidoes that create snake games for 10 minutes in his computer. I am a graduate computer engineering in 2022 in University of Indonesia. Nice to meet you.  👋👋👋
 </br>
 </br>
 
